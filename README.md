@@ -16,4 +16,4 @@ https://scorpiondz1999.github.io/
 ## Contribution
 Made with ❤️ Djamel Ramdani
 
-### ©️2021 Run Buddy, Inc 
+### ©️2021 Djamel Ram, Inc 
